@@ -4,6 +4,10 @@
 [置身钉内.txt](置身钉内.txt)
 
 
+阅读： [https://mp.weixin.qq.com/s/jAiawPqyjCRUtv-YXmRzug](https://mp.weixin.qq.com/s/jAiawPqyjCRUtv-YXmRzug)
+
+
+
 ```bash
 通过网盘分享的文件：阿里员工的《置身钉内》.txt.zip
 链接: https://pan.baidu.com/s/1i2ePb7M_cScNORJouc2n0w?pwd=hp74 提取码: hp74 

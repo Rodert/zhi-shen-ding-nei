@@ -4,7 +4,8 @@
 [置身钉内.txt](置身钉内.txt)
 
 
-阅读： [https://mp.weixin.qq.com/s/jAiawPqyjCRUtv-YXmRzug](https://mp.weixin.qq.com/s/jAiawPqyjCRUtv-YXmRzug)
+
+语音阅读： [https://mp.weixin.qq.com/s/jAiawPqyjCRUtv-YXmRzug](https://mp.weixin.qq.com/s/jAiawPqyjCRUtv-YXmRzug)
 
 
 
